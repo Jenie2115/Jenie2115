@@ -1,4 +1,8 @@
  # 𝑩𝒊𝒆𝒏𝒗𝒆𝒏𝒊𝒅@ 𝒂 𝒎𝒊 𝒑𝒆𝒓𝒇𝒊𝒍, 𝒔𝒐𝒚 𝑱𝒆𝒏𝒊𝒆 ✨
+ <div align="center">
+  <img src= "https://64.media.tumblr.com/ebe997e2f6eed7c37bac4ba7fff78b69/tumblr_oqha1goE5s1t6limbo1_540.gifv" alt="imagen de flores rosadas." width="900" height="250">
+</div>
+
 
 > 💫𝑬𝒍 𝒎𝒖𝒏𝒅𝒐 𝒆𝒔𝒕á 𝒍𝒍𝒆𝒏𝒐 𝒅𝒆 𝒈𝒆𝒏𝒕𝒆 𝒂𝒎𝒂𝒃𝒍𝒆, 𝒔𝒊 𝒏𝒐 𝒑𝒖𝒆𝒅𝒆𝒔 𝒆𝒏𝒄𝒐𝒏𝒕𝒓𝒂𝒓 𝒖𝒏𝒐 𝒔𝒆 𝒖𝒏𝒐 💫.
 
